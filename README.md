@@ -37,7 +37,7 @@
    
    - Join from a PC, Mac, iPad, iPhone or Android device: Please click this URL to start or join. https://tennessee.zoom.us/j/85156123112 Or, go to https://tennessee.zoom.us/join and enter class session/meeting ID: 851 5612 3112
 
- - Join the Discord server from this [link](https://discord.gg/CjyNeXfaGH)
+ - Join the Discord server from this [link](https://discord.gg/MEawUnP9)
 
 
 
